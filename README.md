@@ -1,0 +1,2 @@
+# ZSK
+do szkoły wszystko
